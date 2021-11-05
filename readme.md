@@ -3,6 +3,10 @@
  A new way to settle clashes between fans. 
  Pick your team and play. Scores will be calculated and displayed.
  
+ DOWNLOAD APK ->>
+ 
+ https://drive.google.com/file/d/1TRbice5yspgLc5Pn3kTo9DqJZRX-uw9q/view?usp=sharing 
+ 
  
 
 
